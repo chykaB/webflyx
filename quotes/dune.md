@@ -1,2 +1,1 @@
-* may the knife chip and shatter
-* a great man doesn't seek to lead
+* The Internship
